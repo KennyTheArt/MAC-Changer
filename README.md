@@ -90,6 +90,7 @@ You're free to use, modify, and share with proper attribution.
 
 **Kanan Kenny Haji Yusifli**  
 GitHub: [@KennyTheArt](https://github.com/KennyTheArt)
+Linkedln: [@kanan-yusifli](https://www.linkedin.com/in/kanan-yusifli/)
 
 ---
 
